@@ -75,7 +75,7 @@
 
 ### 🔗 Let's Connect
 
-- 🌐 Portfolio: [sparklee.wildblocks.fun](https://sparklee.wildblocks.fun)  
+- 🌐 Portfolio: [sparklee.wildblocks.fun](https://sparklee.cherrymc.fun)  
 - ✉️ Gmail: [sparshbobade2911@gmail.com](mailto:sparshbobade2911@gmail.com)
 
 ---
